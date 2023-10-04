@@ -30,6 +30,31 @@ Condones
 Un preservativo, profiláctico o condón es un dispositivo de barrera con forma de funda utilizado durante una relación sexual para reducir la probabilidad de embarazo o el contagio de infecciones de transmisión sexual. Existen preservativos masculinos y femeninos.
 
 
+La salud sexual y reproductiva en América Latina
+
+A pesar de los acuerdos internacionales que comprometen a los Gobiernos a resguardar los derechos reproductivos de cada persona, la situación de salud sexual y reproductiva en América Latina hoy en día es uno de los grandes desafíos.
+Un informe publicado por la Organización
+Panamericana de la Salud (OPS), el Fondo de Población de las Naciones Unidas (UNFPA) y el Fondo de las Naciones Unidas para la Infancia
+(UNICEF) muestra que la tasa de fecundidad en adolescentes de 15 a 19 años en América Latina y el Caribe es la segunda más elevada del mundo.
+
+El derecho que tenemos las personas para gozar del derecho a una sexualidad libre, responsable y autónoma está basado en dos principios que, de acuerdo con El Centro de Derechos
+Reproductivos, incluyen:
+
+• El derecho a la atención en salud reproductiva: implica el acceso regular a servicios de salud reproductiva que sean
+seguros y de buena calidad
+• El derecho a la autodeterminación reproductiva: implica el derecho a la integridad física, el derecho a la intimidad, el derecho a planificar la propia familia, y el derecho a estar libre de todas las formas violencia y coerción que afectan la vida sexual o reproductiva de una mujer
+"La mayoría de países en la región son de renta media y en esos promedios esconden un montón de desigualdades en el acceso a la salud sexual y reproductiva. Es decir, si una mujer es pobre, es afrodescendiente, vive en la zona rural, y/o es joven, tiene muchas más barreras para el acceso a los servicios de salud sexual y reproductiva," señaló Carino.
+
+Como parte de la estrategia para mejorar el acceso a la información y servicios de salud sexual y reproductiva por parte de la población de América Latina y el Caribe, la Fundación Huésped y la Federación Internacional de la Planificación de la Familia/Región del Hemisferio Occidental trabajaron de manera mancomunada para lanzar la aplicación móvil VAMOS.
+Esta aplicación gratuita permite buscar y localizar seis tipos de servicios de salud sexual y reproductiva en el sector público como en el privado en más de 30 países de América Latina y el Caribe, que incluyen:
+•Retiro de preservativos
+• Prueba de VIH y otras infecciones de transmisión sexual
+• Métodos anticonceptivos
+• Interrupción legal del embarazo
+Detección temprana de cáncer de cuello uterino y cáncer de
+mama
+• Servicios de salud sexual y reproductiva
+
 
 
 
